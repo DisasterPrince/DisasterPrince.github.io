@@ -8,4 +8,4 @@ I like maple donuts and hot guys, and use (he/him) pronouns. I also like pandas!
 
 <b>Apocalypse Archipelago</b>
 
-[Epicvivor _ Apocalypse Archipelago.html]
+[Format Beta](Epicvivor _ Apocalypse Archipelago.html)
