@@ -1,9 +1,9 @@
 ## About Me!
 
-I'm DisasterPrince! AKA Landen. I'm a 15 year old artist and character animation practitioner who lovesss Survivor.
-
-I like maple donuts and hot guys, and use (he/him) pronouns. I also like pandas!
-
+I'm DisasterPrince! I also go by Landen, but please stick to calling me DP. I just really appreciate it. <br>
+Survivor is pretty much my life. I just... love it. I love it too much. <br>
+I'm 16. I'm a cis guy (he/him) and I'm bisexual. I really like maple donuts, and cuddling, and pandas. <br>
+I get far too emotionally attached and act far too detached. :) Read my work please! I love comments <3
 ## Epicvivor
 
 <b>Apocalypse Archipelago</b>
